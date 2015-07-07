@@ -1,1 +1,13 @@
-By the time the Cleaning Lady awoke, it had implausibly breezed past the first seven layers of the Identify-Friend-or-Foe intrusion detection, apparently using nothing besides its implausibly small size 
+
+
+As the alarm blared in the darkness, the Cleaning Lady awoke. By then, the intruder had implausibly breezed past all but the last seven layers of the Identify-Friend-or-Foe modulator. It had apparently used nothing besides its ridiculously small size and truly outrageous amounts of luck to get past the outermost wards. It had been finally trapped in a web laid down by one of the sweepers, but was still struggling valiantly by the time the Cleaning Lady got there. 
+
+The sweeper web had actually mostly torn it apart. The Lady saw that it was a primitive thing, an evolutionary relic, that seemed to have only found its way in through some comically, cosmically unlikely occurrence. It was far outside the range of scenarios even the Builders, in their near-infinite wisdom, had laid down. Because of that, after it finally stopped struggling, the Lady traced it back, extrapolated, establishing protocols and interfaces as she went, improvised here and there, putting the broken fragments together in some semblance of order. After dutifully laying down probability paths and aeon-scale projections, none of which made any sense, the Lady didn't know what else to do, so she simply weaved the flows ever so slightly into a cocoon of sorts around it. Just in case. It might be Interesting. The Lady yawned, and went back to sleep. 
+
+---
+
+In retrospect, Neko reflected, in what could in a sense be construed as the last nanosecods of her existence, it was nothing but typical Accelerando hubris, that AI-foom rubbish that her tutors and worshippers had been spouting all along, before she’d exterminated the little pests. It had gotten to her. It shouldn’t have, but it had. Nothing else could explain why she’d been so unbelievably, insanely, suicidally stupid. Reality hit her like a granite slab, and she disintegrated into countless little pieces. 
+
+---
+
+Having walked away from the party at just this time (was it an accident?), and looking through the logs at the shards of the fragile little Julia set cocooned within, the Joker smiled. It was so fantastically unlikely, so creative, that none of the Others had foreseen it. Like a mite getting into a safe because the safe-makers, worried about hammers, drills and explosives, never thought to make it mite-proof. Hahaha. A mite infestation. The joke was definitely on them this time. The Joker sprinkled the shards back into the tiny, early little spacetime they’d come from, erased the log, then went back out to the party, giggling quietly.
