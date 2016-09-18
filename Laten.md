@@ -1,7 +1,7 @@
 # 11:34 PM  - 2016-09-18
 
 
-
+The black iron leaves and the black iron flowers of the gate were remarkably similar to my grandmother's vintage set of East-German playing cards. More importantly,
 
 (Spades, Hearts, Clubs and Diamonds)
 
