@@ -1,5 +1,13 @@
 # 11:34 PM  - 2016-09-18
 
+
+
+
+(Spades, Hearts, Clubs and Diamonds)
+
+(These were inspired from the Ace cards of my grandmother's old East German playing-card deck, a  1970 design by Walter Krauss called Braun-0136: I would later spend years searching for it, but more on that later)
+
+
 Jana
 Alice
 Anna
